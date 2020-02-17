@@ -251,12 +251,19 @@ vivid to me. I've listed them here in order from West to East:
   blaze-to-blaze so that I wouldn't get lost rather than trying to burn it
   out and ending up causing more trouble for myself.
 
-- I got turned around in Harrison Hills Park for really the first time all
-  day and ended up doing some route finding around the pond to find the
-  trail in the southern most part of the park in the dark, then again
-  around the cellphone tower in the north eastern corner. The last mile or
-  two up the side of Harrison Hills overlooking the river felt like the
-  longest part of the trail.
+- I got turned around in Harrison Hills Park for the first time all day,
+  and ended up doing some route finding both around the pond in the south
+  and cellphone tower in the north. In both cases, I believe I followed the
+  appropriate blazes the whole time but that the trail may fork or become
+  vague in popular high traffic areas. The maps posted in the park, on the
+  Conservancy website, and various maps on the internet also do not quite
+  agree about these areas, which supports my guess about forking makes me
+  suspect that I am not the only person who has been confused here.
+
+- The last mile or two up the side of Harrison Hills overlooking the river
+  felt it went on forever. The rain was picking up, making the view into
+  Freeport and Garvers Ferry indistinct. I'd hiked that segment before but
+  it felt so much longer than I remembered.
 
 - When I came past the tower and onto the gravel road, I gave it my best
   effort to trot home to the finish in style. God only knows how I actually
