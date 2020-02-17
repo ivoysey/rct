@@ -3,9 +3,8 @@
 
 ## Discussion of This Report
 
-trip date: 19 November 2019
-report written: 17 February 2020
-
+- trip date: 19 November 2019
+- report written: 17 February 2020
 
 The time between the report and trip is because it never occurred to me
 that I might have established the FKT for this route with my effort. This
