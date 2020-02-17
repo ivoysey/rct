@@ -277,6 +277,14 @@ vivid to me. I've listed them here in order from West to East:
   for how I smelled, and started the drive back to my car, a shower, and
   bed.
 
+When I returned home to unpack my gear and have dinner, I was shocked to
+find how much water I had left. Because of the cool temperatures and
+overcast skies, I drank both flasks of electrolyte fortified water and only
+about 1.5L of water, so I had a ton left over. I also basically didn't
+touch my gels -- a real staple for me during road racing, but absolutely
+turned my stomach the one time I tried it during this effort. I had two
+clif bars left which I happily ate on the drive.
+
 ### Afterwards
 
 I was surprised at how fine I felt in the days after this effort. I took
