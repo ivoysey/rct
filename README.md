@@ -33,11 +33,11 @@ whole effort. I did not pre-stash any food, water, or gear and did not
 leave any gear or litter behind. I did have a friend meet me at the end of
 the trail because it's a point-to-point but I did not interact with him
 physically during the effort. I also exchanged perhaps a dozen text
-messages with my ride as well as my girlfriend, who was my designated
-"person who knows my plan in case something goes wrong" during the effort,
-to update them on my progress. While I am grateful for their logistical
-help after the effort and words of confidence, I do not believe that
-constitutes "support" in the sense that would mean this isn't an
+messages with my ride as well as my girlfriend, Vincent Zeng, who was my
+designated "person who knows my plan in case something goes wrong" during
+the effort, to update them on my progress. While I am grateful for their
+logistical help after the effort and words of confidence, I do not believe
+that constitutes "support" in the sense that would mean this isn't an
 "unsupported" effort.
 
 ## Description of The Effort
@@ -219,20 +219,20 @@ vivid to me. I've listed them here in order from West to East:
   me. It was good to remember other people.
 
 - I remember the ascent and then desecent into Agan Park. The first time I
-  tried the RCT, my girlfriend had stashed myself and Brian some water and
-  clean socks behind a big tree there, and it was full of families playing
-  catch. This time it was closed for the season and awfully lonely -- but I
-  felt good that I was at my previous cache site with more than half the
-  water I started with. The road segment up hill after Agan was as much fun
-  as always; there was some more foul language about cars, speed limits,
-  and visibility, but again luckily no one was round to mind much.
+  tried the RCT, V had stashed myself and Brian some water and clean socks
+  behind a big tree there, and it was full of families playing catch. This
+  time it was closed for the season and awfully lonely -- but I felt good
+  that I was at my previous cache site with more than half the water I
+  started with. The road segment up hill after Agan was as much fun as
+  always; there was some more foul language about cars, speed limits, and
+  visibility, but again luckily no one was round to mind much.
 
 - Things got hard for me in the Park-n-Ride for PA28 at the bottom of Ridge
   Road. It was shortly before sunset and I had promised both my ride,
-  David, and my girlfriend that I would check in by sunset but probably not
-  before. I stopped and pulled out my phone for the first time, read the
-  chatter between them during the day, and let them know where I was. They
-  were both very excited and told me to go for it, and that I was within 10
+  David, and V that I would check in by sunset but probably not before. I
+  stopped and pulled out my phone for the first time, read the chatter
+  between them during the day, and let them know where I was. They were
+  both very excited and told me to go for it, and that I was within 10
   miles from the finish. I had been managing something like 4 mph to that
   point, so that seemed to me like something I could do -- "just two more
   hours, ish" in fuzzy end of day math. David set out from the city to meet
